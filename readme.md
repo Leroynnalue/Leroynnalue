@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently a student @ Aptech 😋
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2022 Goals: Becoming A Freelancer
+- 🥅 2022 Goals: Build My Research Habit
 - ⚡ Fun fact: I love to play video games
 - 😺 Ambivert
 
